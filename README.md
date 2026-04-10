@@ -1,0 +1,1 @@
+# praktikum-basis-data-fikri_fahmi
